@@ -2,7 +2,7 @@
 
 ### ‼️长按复制到浏览器里面访问网址‼️
 
-### ⭐️ 👉 2021.5最新地址：https://web.beiwodh.buzz/
+### ⭐️ 👉 2021.5最新地址：https://ads123kk256-xxdh-cdn.beiwodh.buzz/web
 
 ## ‼️請使用Ctrl+D進行收藏此页面!
 
